@@ -1,4 +1,4 @@
-# 
+# Smart Gemini Spark templates. Featuring community-support and voice-assistant — optimized for maximum performance and efficiency.
 
 
 
